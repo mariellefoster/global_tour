@@ -3,30 +3,45 @@ Things to do in Minneapolis
 
 
 ## ---Food and Drink—
+### Dessert
 - Sebastian joes (ice cream)
-- Namaste cafe
-- Black sheep pizza
-- Broders 
-- Butter bakery
-- Patisserie 46 (world class French pastries)
-- Rose Street Patisserie
-- Cold front
-- Nightingale 
-- Burch steak house and pizza
+
+
+### Drinks
+- Five Watt (my favorite coffeeshop)
+- Hewing
+- Surly
+- Fulton
+- Prohibition bar
 - Bachelor farmer
 - Marvel bar
+- Young Joni's back bar
+
+### Breakfast/Brunch
+- Butter bakery
+- Patisserie 46 (world class French pastries)
+- Nighthawks
+
+### Baked Goods
+- Patisserie 46 (world class French pastries)
+- Rose Street Patisserie
+
+
+### Dinner/Lunch
+- Namaste cafe
+- Young Joni's
+- Black sheep pizza
+- Broders 
+- Cold front
+- Burch steak house and pizza
+- Bachelor farmer
 - Brits pub
 - Ice house bar
 - World Street Kitchen
 - Brasa
 - Kyatchi
-- Five Watt (my favorite coffeeshop)
 - Hai hai (Vietnamese street food)
 - Takatsu
-- Hewing
-- Surly
-- Fulton
-- Prohibition bar
 - Martina
 - Hola Arepa
 
