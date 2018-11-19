@@ -2,10 +2,9 @@
 Things to do in Minneapolis
 
 
-## ---Food and Drink—
+## —Food and Drink—
 ### Dessert
 - Sebastian joes (ice cream)
-
 
 ### Drinks
 - Five Watt (my favorite coffeeshop)
@@ -26,7 +25,6 @@ Things to do in Minneapolis
 - Patisserie 46 (world class French pastries)
 - Rose Street Patisserie
 
-
 ### Dinner/Lunch
 - Namaste cafe
 - Young Joni's
@@ -45,7 +43,7 @@ Things to do in Minneapolis
 - Martina
 - Hola Arepa
 
-## ---Arts/Museums—
+## —Arts/Museums—
 - Walker
 - MIA (Minnesota Institute of Arts)
 - Swedish Museum
@@ -54,7 +52,7 @@ Things to do in Minneapolis
 - Mill City Museum (HIGHLY recommend)
 - Minneapolis Sculpture Garden
 - Minnesota Orchestra
-- Weiss man museum
+- Weissman museum
 
 ## ---Sights---
 - Stone arch bridge
@@ -62,7 +60,6 @@ Things to do in Minneapolis
 - Tour of the lakes*
 - Guthrie 9th floor (entrance is free)
 - Prohibition bar
-
 
 ## ---Entertainment---
 - Cedar cultural center
@@ -72,7 +69,7 @@ Things to do in Minneapolis
 - First ave (famous danceteria/concert place)
 - Ice house bar
 
-## —-Night Clubs/Dancing—
+## —Night Clubs/Dancing—
 - The Saloon
 - The Gay 90s
 - Honey
