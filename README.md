@@ -5,6 +5,7 @@ Things to do in Minneapolis
 ## —Food and Drink—
 ### Dessert
 - Sebastian joes (ice cream)
+- Glamdoll donuts
 
 ### Drinks
 - Five Watt (my favorite coffeeshop)
@@ -14,6 +15,9 @@ Things to do in Minneapolis
 - Prohibition bar
 - Bachelor farmer
 - Marvel bar
+- Norsemen
+    - They have a great cocktail making class that is INCREDIBLE value
+- Spoon and Stable bar
 - Young Joni's back bar
 
 ### Breakfast/Brunch
@@ -90,4 +94,3 @@ Things to do in Minneapolis
 - Art cellar mcad
 - Fifth element (if you like hip hop)
 - Cliché
-- Smitten Kitten
