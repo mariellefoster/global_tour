@@ -70,10 +70,15 @@ Things to do in Minneapolis
 - Ice house bar
 
 ## —Night Clubs/Dancing—
+(most places 21+)
+- Kit Cat Klub
+- First Ave (legendary dance hall)
 - The Saloon
 - The Gay 90s
 - Honey
 - Ice House
+- Minneapolis DJ's
+    - There's a number of decent ones, poke around on twitter, particularly see who is playing Ice House, they tend to be awesome
 
 ## ---Bookstores---
 - Birchbark Books
@@ -83,6 +88,6 @@ Things to do in Minneapolis
 
 ## ---Shopping---
 - Art cellar mcad
-- Smitten kitten
 - Fifth element (if you like hip hop)
 - Cliché
+- Smitten Kitten
