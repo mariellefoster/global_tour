@@ -6,6 +6,9 @@ Things to do in Minneapolis
 ### Dessert
 - Sebastian joes (ice cream)
 - Glamdoll donuts
+- Izzy (another ice cream place)
+- Café Latte (for their cakes)
+- Cardigan Donuts (for donuts, especially the old fashioned)
 
 ### Drinks
 - Five Watt (my favorite coffeeshop)
@@ -30,6 +33,7 @@ Things to do in Minneapolis
 - Rose Street Patisserie
 
 ### Dinner/Lunch
+- Food trucks! (they line 2nd Ave downtown near work all summer)
 - Namaste cafe
 - Young Joni's
 - Black sheep pizza
@@ -46,6 +50,20 @@ Things to do in Minneapolis
 - Takatsu
 - Martina
 - Hola Arepa
+- Revival (fried chicken)
+- Punch Pizza
+- Tea House
+- Naf Naf
+- Himalayan
+- Bon chon
+- Maya Cuisine
+- Lu’s Sandwiches (banh-mi)
+- Unideli (in United Noodle grocery store)
+- Fasika (light rail access)
+- Pimento (also has food truck)
+- Naughty Greek
+- Land’s End Pasty
+- Anchor fish & chips (also has food truck)
 
 ## —Arts/Museums—
 - Walker
@@ -57,6 +75,13 @@ Things to do in Minneapolis
 - Minneapolis Sculpture Garden
 - Minnesota Orchestra
 - Weissman museum
+
+## Events
+- Art fairs – e.g. Stone Arch Bridge June 15-16
+- Aquatennial – July 24-27
+- Northern Spark – June 14-15
+- Minnebar / Minnedemo
+- Puzzled Pint – www.puzzledpint.org
 
 ## ---Sights---
 - Stone arch bridge
@@ -94,3 +119,20 @@ Things to do in Minneapolis
 - Art cellar mcad
 - Fifth element (if you like hip hop)
 - Cliché
+
+## ---Places To Stay---
+- U of Mn: Being near the U of Mn is great, particularly for access to public transport
+- Dinkytown
+- North Loop
+- Uptown
+
+## Transit
+- You can rent bikes from the Nice Ride system: https://www.niceridemn.com/
+- Light rail and buses are decent
+- Summer is road construction season
+- Winters can be quite rough with ice and snow. Prepare for extreme temperatures.
+
+## Information
+- CityPages Calendar: www.citypages.com/calendar
+- Minneapolis subreddit: r/Minneapolis
+- Posters/flyers around the university
