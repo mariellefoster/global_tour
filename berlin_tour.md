@@ -22,6 +22,8 @@ Things to do in Berlin
   - my favorite brunch + coffee house
 - Klunkerkranich
   - fun rooftop bar, hard to find the entrance in a parking garage http://klunkerkranich.org
+- Cocolo Ramen
+  - Super tasty, multiple locations, I highly recommend the one near Köttbusser Tur
 
 ## Saunas/Turkish Baths
 - Vabali 
