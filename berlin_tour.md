@@ -49,3 +49,7 @@ Turkish Hamam
 - Doing some second hand shopping 
 - Walking along the canals in south/central Berlin
 
+## Active Activities
+- Berta Block
+  - Fun bouldering in the north end of Berlin, really nice people
+- Bike rentals are cheap and a great way to get around/see the city
