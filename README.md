@@ -7,5 +7,6 @@ Things to do in various cities:
 - Berlin
   - [Read more here](https://github.com/mariellefoster/global_tour/blob/master/berlin_tour.md)
 
-- London (coming soon)
+- London
+  - [Read more here](https://github.com/mariellefoster/global_tour/blob/master/london_tour.md)
 
