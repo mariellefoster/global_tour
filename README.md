@@ -10,3 +10,5 @@ Things to do in various cities:
 - London
   - [Read more here](https://github.com/mariellefoster/global_tour/blob/master/london_tour.md)
 
+- Cuyuna Lakes, Minnesota
+  - [Read more here](https://github.com/mariellefoster/global_tour/blob/master/cuyuna_tour.md)
