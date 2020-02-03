@@ -24,6 +24,10 @@ Things to do in Minneapolis
 - Young Joni's back bar
 
 ### Breakfast/Brunch
+- Victor's 1959 Café
+  - excellent Cuban food
+- Spoon and Stable
+  - Award winning pastry chef, exquisite menu. Get a basket of pastries.
 - Butter bakery
 - Patisserie 46 (world class French pastries)
 - Nighthawks
